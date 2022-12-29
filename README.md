@@ -1,0 +1,1 @@
+# SzlucskaDora_KutyaOsztaly
